@@ -21,6 +21,6 @@ The elephant in the room is addressed! Mike wonders what Will means, if he reall
 
 - Mike tug-of-war between Will and Vecna, where Vecna is trying to get into Mike's head to hurry things up but Will somehow knows because of his connection and (subconsciously) tries to protect Mike/pull Mike back if that makes sense... can be subject to change. 
 
-- Ultimately, Vecna's efforts are in vain. Mike and Will are still together/talking when Joyce comes in and tells them that they need to leave for final battle. This is when Will comes out. [Should we have different options?]
+3. Ultimately, Vecna's efforts are in vain. Mike and Will are still together/talking when Joyce comes in and tells them that they need to leave for final battle. This is when Will comes out. [Should we have different options?]
 Mike is STILL so dumb so Vecna finally loses it and this is when he goes into Mike's head --> beginning of angst. 
 - Final: choices made in Mike's head added with the points from mini-games decides which of the three endings the player gets. 
