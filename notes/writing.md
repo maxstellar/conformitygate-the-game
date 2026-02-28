@@ -43,3 +43,29 @@ Mike is STILL so dumb so Vecna finally loses it and this is when he goes into Mi
 6. Success of minigames lead to a logically/narratively fitting Will coming out scene!
 7. "I'm done playing games. If neither of them can take a hint... I'll do it myself."
 [END OF ACT I]
+
+
+### OUTLINE FOR ACT II (Yunfei)
+[ACT II]
+- general notes for angst chapter: decisions made with either be (1) to taunt Mike, (2) to console Mike. The goal of this chapter is for Mike to accept himself, which is what will lead to good ending. Taunting won't work. --> Vecna will need to come to an understanding that he must console/comfort Mike.
+
+**Taunting**: Makes Mike more guilty, more withdrawn. Ultimately leads to inacceptance of himself and self-hatred for the way he treated Will, which leads to the fall of their friendship. 
+**Consolation**: Mike finally has a means to resolve his internalised homophobia and accepts himself and his feelings. This self-acceptance is what leads to his newfound bravery to shoot his shot. 
+
+1. Vecna pulls Mike into his Mindscape: Following Will's coming out, the scene immediately shifts to the rain fight, where Mike had (infamously) said: "It's not my fault you don't like girls!"
+- (Based on my concept sketches -) Vecna suggests that Mike had meant it, but not about Will; it was rather a projection of his own insecurities. 
+- Consolation: "It's okay. You were afraid."
+- Taunting: "Your words will haunt him forever. He thinks you hate him, you hate people like him. Do you want to live that guilt your whole life?"
+"You were afraid... That's why you never sent those letters, Michael." -> Transition to:
+
+2. Vecna reminds Mike of Lettergate: It is revealed that Mike did pen letters to Will between S4 and S5, only that he'd never sent them for Unknown Mysterious Reasons. Vecna proceeds to taunt Mike about the Unknown Mysterious Reasons. 
+- Consolation: "Whatever you wrote - it wasn't *wrong*. You are allowed to *feel*, Michael."
+- Taunting: "Aren't you ashamed of yourself, Michael? You let yourself get in between the most important friendship of your life. Why couldn't you just be... normal?"
+Transition to: 
+
+3. A mix of Mike's most traumatic events with relation to Will: the quarry (in season 1, when Mike almost jumps following Will's disappearance), Will's "body" being dragged out (season 1), when the Byers moved away from California (season 3), Will gets possessed (season 2) - Mike monologue where he says meeting him was the best thing he's ever done.
+- Consolation: "There is still time. There is still time to make it right." (I Saw The TV Glow type of messaging here.)
+- Taunting: "But it was never enough, wasn't it? You were never enough. That's why you *keep* losing him. That why you *will* lose him again, and you won't do anything about it. You are a coward, Michael."
+
+Decisions made during this period leads to:
+[ENDINGS]
