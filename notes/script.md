@@ -7,19 +7,10 @@ m (sub) "Friends? No thanks."
 
 "Will has a last glimmer of hope in his eyes."
 
-v Oh my god it's happening!!! BYLER IS GONNA BE CANON!!
+v ""
 
 m (sub) Best friends.
 
 (visual) Vecna extends his arm, and suddenly the TV screen shatters and breaks.
 
-v "WHAT DO YOU MEAN, THEY AREN'T GETTING TOGETHER?"
-
-v "HOLY QUEERBAIT BRO"
-
-"..."
-
-v "NAH THIS CAN'T BE HAPPENING."
-
-v "I GOTTA DO SOMETHING ABOUT THIS!"
-
+v ""
