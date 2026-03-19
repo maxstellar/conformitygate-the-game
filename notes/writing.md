@@ -40,6 +40,16 @@ Mike is STILL so dumb so Vecna finally loses it and this is when he goes into Mi
     - ^^^ Keep in mind minigame to do so needs to be scored
   - Tug-of-War
     - I'm lowkey unclear on this, someone please help flesh this particular part out. THX :3
+  - Tug of war: MOTH's ideas!
+    - Will subconsciously protecting Mike from Vecna’s attempts to get into his mind via memories/guilt/trauma(like Chrissy)
+    - Could have cute/simple icons or fully rendered characters
+    - Sitting on the couch together(or anywhere really), Will has a glowy thing? Like a blue or yellow aura that expands around him and Mike. and shields him from shadows(vignette effect, red), that happens because of the player trying to get into Mike’s mind. 
+    - How the player could make the shadows expand: 
+      - Spam clicking
+      - **Typing in partially-deleted key words from Mike’s memories, stuff that makes him feel guilty for ignoring or losing Will in the past (MIRKWOOD; WILL-THE-WISE; idk other stuff with pictures as hints)**
+      - Trying to physically drag mike away like point and click style(would probably only work with the simple icons, not fully drawn for this minigame)
+    - Will could gesture/say something about having that weird sense on the back of his neck
+    - This minigame: probably mostly for dramatic/emotional effect, I can’t see this being points-based and the player has to fail eventually for the plot to progress
 6. Success of minigames lead to a logically/narratively fitting Will coming out scene!
 7. "I'm done playing games. If neither of them can take a hint... I'll do it myself."
 [END OF ACT I]
